@@ -1,8 +1,8 @@
 ### Hi everyone, I am Marco Camillo Rizzi! :wave:
 
-I am a Software Developer and independent Game designer.
+I am a Software Developer and an independent Game designer.
 
-Currently working as a Software Developer @ Ramaplast S.p.A.
+I'm currently working as a Software Developer @ Ramaplast S.p.A.
 
 I enjoy :video_game: gaming, :muscle: working out and :drum: playing drums!
 
